@@ -17,4 +17,4 @@ sigma
 ![Uploading image.png…]()
 ![Uploading image.png…]()
 
-asdksrhjbekjrhb
+asdksrhjbekjrhb this is configtinc shit from main or somethin
